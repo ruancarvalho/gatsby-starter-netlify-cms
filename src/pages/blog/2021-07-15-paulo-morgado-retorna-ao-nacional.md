@@ -7,6 +7,8 @@ description: |
 featuredpost: false
 featuredimage: https://cdn.nacionalfc.com.br/2021/05/Paulo-Morgado-Nacional-FC_00211332_0_202007091724.jpg
 ---
+![](https://cdn.nacionalfc.com.br/2021/05/Paulo-Morgado-Nacional-FC_00211332_0_202007091724.jpg)
+
 Um bom filho a casa torna! O português Paulo Diogo Jorge Morgado, retorna ao Leão da Vila Municipal para atuar como coordenador técnico da Escolinha de Futebol do Nacional. O professor havia assumido o mesmo cargo em 2017 e 2020 e agora está de volta para escrever um novo capítulo.
 
 Formado em Educação Física, Paulo Morgado já atuou em vários times ao longo de sua carreira, dentro e fora do país. Os trabalhos começaram em 1996, como treinador do time sub-19 do Sport Lisboa Olivais, da 1ª Distrital de Lisboa, em Portugal. Daí em diante passou pelo Benelenses (1997 a 2004), Atlético Clube de Portugal (2004 a 2007), Sport União Sintrense (2007 a 2010), Vitória do Pico (2009 a 2010) e Odivelas (2010). Já no Brasil, o português teve passagens pelo Atlético Rio Negro (2011), Penarol Futebol Clube, de Itacoatiara – AM (2012), Fast Clube (2012 e 2013), Manaus FC (2013 a 2014) e Icasa (2016). E, na última edição do Campeonato Amazonense foi técnico do JC de Itacoatira-AM.
